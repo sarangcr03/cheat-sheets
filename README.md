@@ -1,2 +1,1 @@
-support the original (creator).
-[https://www.patreon.com/christianlempa]
+support the original (creator)[https://www.patreon.com/christianlempa]
