@@ -1,3 +1,1 @@
-### All credits to the original writer
-
-https://www.patreon.com/christianlempa
+### All credits to the original (writer)[https://github.com/ChristianLempa]
