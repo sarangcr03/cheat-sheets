@@ -1,3 +1,3 @@
-##support the original creator.
+support the original creator.
 
 [https://www.patreon.com/christianlempa]
